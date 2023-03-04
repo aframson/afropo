@@ -1,0 +1,1 @@
+const frt = ()=>{let name='rich'}
