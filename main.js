@@ -1,0 +1,1 @@
+I do have the right number and I can get a new phone and then we have a good day and I love 
